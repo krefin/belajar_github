@@ -1,1 +1,1 @@
-ada isinya
+isi
